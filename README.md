@@ -1,8 +1,8 @@
 ### **Accenture Data Analytics and Visualization Virtual Internship**
 
 #### **Certificate**  
-Successfully completed the **[Accenture Data Analytics and Visualization Virtual Internship](https://forage-uploads-prod.s3.amazonaws.com/completion-certificates/T6kdcdKSTfg2aotxT/hzmoNKtzvAzXsEqx8_T6kdcdKSTfg2aotxT_SQGDnrwM5WzFRzJXZ_1731004596116_completion_certificate.pdf)
-** program, showcasing skills in data analysis, visualization, and storytelling to deliver actionable business insights.
+Successfully completed the [Accenture Data Analytics and Visualization Virtual Internship](https://forage-uploads-prod.s3.amazonaws.com/completion-certificates/T6kdcdKSTfg2aotxT/hzmoNKtzvAzXsEqx8_T6kdcdKSTfg2aotxT_SQGDnrwM5WzFRzJXZ_1731004596116_completion_certificate.pdf)
+program, showcasing skills in data analysis, visualization, and storytelling to deliver actionable business insights.
 
 ---
 
